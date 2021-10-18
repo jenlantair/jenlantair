@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jenlantair
+- 👀 I’m interested in cats. 
+- 🌱 I’m currently learning Swedish.
